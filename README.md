@@ -1,1 +1,0 @@
-# Trabalho-de-Linguagem-de-programacao-VII
